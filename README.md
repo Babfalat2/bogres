@@ -1,3 +1,0 @@
-# bogres
-gg
-macskka
